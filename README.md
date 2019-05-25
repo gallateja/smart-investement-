@@ -1,1 +1,1 @@
-# smart-investement-
+# smart-investment-
